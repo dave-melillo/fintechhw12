@@ -10,7 +10,7 @@
 
 * How did the idea for the company (or project) come about?
 
-* How is the company funded? How much funding have they received?
+* How is the company funded? How much funding have they received? 1019-284-90238402394812039821039580123958
 
 
 ## Business Activities:
