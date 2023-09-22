@@ -2,7 +2,7 @@
 
 ## Overview and Origin
 
-* Name of company
+* Name of company OpenSea
 
 * When was the company incorporated?
 
